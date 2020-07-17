@@ -1,0 +1,3 @@
+# READ ME PLS
+
+E A C B A E^ 
